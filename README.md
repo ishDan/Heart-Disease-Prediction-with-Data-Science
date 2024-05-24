@@ -2,13 +2,6 @@
 
 MEMBERS: Pronata Datta, Shun An Chang, Hillary Gesel, Shengqi Ye
 
-GROUP 21 PRESENTATION Video Link: 
-
-https://drive.google.com/file/d/1C07bRylcT10ZfbU8jDOWUhRJOZ58e7aB/view?usp=sharing
-
-
-
-
 
 
 #Abstract:
